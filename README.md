@@ -3,6 +3,8 @@ https://github.com/youxiongching-web/demos/blob/c10844e613dffb1442e87a2ebfdd8ec6
 ↑[ download to get clickable links pdf file]
 
 https://github.com/youxiongching-web/demos/blob/7097e1b90aa896727a24c1902df420d4c141764f/cert_transcript.pdf
+or via link Drive Google/
+（ https://drive.google.com/file/d/1JVkBznA_QgYymjeUWUOBGd6JH2aPhA6H/view?usp=drivesdk ）
 [ ↑ transcript cert Degree Bsc. (1999-2002)]
 
 Link to Issue；#2； ^↓
